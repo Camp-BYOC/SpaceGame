@@ -8,7 +8,7 @@ No one knows where he came from. Some say he is a cursed warrior, doomed to wand
 The Tota: Your Only Hope
 But you are not entirely alone in this nightmare. In your possession lies a mysterious artifact—the Tota. It is an ancient relic said to hold powers beyond comprehension. Some say it was created by the last warriors who defied Mandorian, their final gift to those who would come after them.
 
-The Tota has the ability to buy you time, to create distractions, and even to weaken Mandorian—but only for a short while. It can defeat him when shooted on him.
+The Tota has the ability to buy you time, to create distractions, and even to weaken Mandorian—but only for a short while. It can defeat him when shot onto him.
 
 The Mission
 Your goal is simple: survive.
